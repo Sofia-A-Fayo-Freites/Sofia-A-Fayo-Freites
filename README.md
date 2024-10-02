@@ -8,5 +8,5 @@ I am a Sociology graduate 🧑‍🤝‍🧑 and an enthusiast of the world of d
 
 
 ### You can find me on
-[LinkedIn](https://www.linkedin.com/in/sofia-fayo-freites/)
+[LinkedIn](https://www.linkedin.com/in/sofia-fayo-freites/) \
 [Website](https://sites.google.com/view/sofiaafayo/home)
